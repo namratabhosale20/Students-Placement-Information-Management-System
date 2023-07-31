@@ -12,7 +12,6 @@
 ![project11](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/10894470-5d6c-4ef6-bee1-3aea5c790456)
 ![project12](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/6aa21e94-eba4-4ebf-9c14-60a8f9d02a95)
 ![project13](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/4c981bcd-238a-455a-9763-9b2d6a4fb720)
-![project14](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/afed7c80-c976-4761-b05e-7b8b14![project15](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/00ca8d9a-1eb8-4dbb-a6a9-e75108249a5a)
-47a7b1)
+![project14](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/9716d351-ebcb-466f-a193-03af584fbf1b)
 ![project16](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/fb3d75e6-1e46-4d30-b533-35d57b44e2b0)
 ![project17](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/39cb4c6c-2a49-4470-af12-669d8cb74a99)
