@@ -15,3 +15,5 @@
 ![project14](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/9716d351-ebcb-466f-a193-03af584fbf1b)
 ![project16](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/fb3d75e6-1e46-4d30-b533-35d57b44e2b0)
 ![project17](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/39cb4c6c-2a49-4470-af12-669d8cb74a99)
+![project18](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/8c343c84-939e-4383-aa97-54b339e89344)
+![project19](https://github.com/namratabhosale20/Students-Placement-Information-Management-System/assets/104768013/a9acc261-b410-4bae-9714-506bc7a12cbc)
